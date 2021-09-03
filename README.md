@@ -1,1 +1,1 @@
-https://kanekochi.github.io/kanekochi.com/
+https://kanekochi.github.io/kanekochi.com/https:/

@@ -1,1 +1,1 @@
-# kanekochi.com
+kanekochi.com
